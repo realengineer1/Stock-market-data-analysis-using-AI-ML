@@ -1,1 +1,1 @@
-# Project will be upload by Monday 20th July
+# Project will be read and uploaded by Monday 20th July
